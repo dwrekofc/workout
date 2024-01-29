@@ -12,7 +12,7 @@
 	- THEREFORE
 		- Get 8+ hrs of sleep a night
 		- Take your rest days seriously (walk, get outside, move but don't over exert yourself)
-		- Eat 1g/lbs of body weight per day and at least 200-300g of carbs every day + tons of veggies/fiber
+		- Eat protien (1g/lbs of body weight per day) and at least 200-300g of carbs every day + tons of veggies/fiber
 		- Drink 1 gal of water each day (add electrolytes or a large pinch of pink salt to each bottle you drink to stay hydrated. You want ~1000mg of additional sodium each day. If salty water tastes good, then you need more salt. If it tastes bad, then youre saturated and can opt for plain water)
 		- DONT OVERWORK YOUR MUSCLES. You can always add more next week, you can NEVER undo the work you did last week.
 		- Keep your workouts fun. Getting in the gym and doing SOMETHING is more important than having the best workout ever. After a few weeks of doing it, it will become a habit or maybe even enjoyable. Find reasons to look forward to it (I love listening to music, a podcast, audio book, or even watching anime while I work out. Sometimes that's what it takes to make it tolerable when I really don't want to go)
